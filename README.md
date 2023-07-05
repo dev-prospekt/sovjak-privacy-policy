@@ -1,1 +1,0 @@
-# sovjak-privacy-policy
